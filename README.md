@@ -1,0 +1,1 @@
+# Filtro da Media
